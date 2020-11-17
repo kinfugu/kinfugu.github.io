@@ -1,0 +1,1 @@
+# kinfugu.github.io
